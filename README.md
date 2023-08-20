@@ -1,4 +1,4 @@
-# TheHuxleyFamily
+# The Huxley Family
 
 http://mural.uv.es/~mifepra/biohux.htm
 
